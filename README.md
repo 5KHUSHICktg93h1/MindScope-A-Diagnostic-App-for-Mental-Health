@@ -1,0 +1,1 @@
+# MindScope-A-Diagnostic-App-for-Mental-Health
